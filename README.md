@@ -11,14 +11,12 @@ Cutting. ✂️💥
 
 ## What I actually do
 
-✂️ I cut fast YouTube videos
-🎮 Minecraft & Fortnite player
-💜 Owner from EnderMine
-🐼 Panda Fan
+✂️ I cut slow YouTube videos
+🎮 I Play Minecraft & Roblox
 
 ## Fun Facts
 
-I say every Day „only one thing“, an then i sit 5h on my PC.
+I say every Day „only one thing“, an then i sit 5h on my PC. (From ChatGPT 💀)
 
 ## Im Cutting with
 
