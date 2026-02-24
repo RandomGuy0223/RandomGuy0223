@@ -1,6 +1,6 @@
 ## Yo 👋 What's up?
 
-Yo, im Erwin and I'm a German Cutter and Not a Programmer Idk why i am here...
+Yo, im RandomGuy and I'm a German Cutter and Not a Programmer Idk why i am here...
 
 ## What defines me
 
@@ -13,10 +13,6 @@ Cutting. ✂️💥
 
 ✂️ I cut slow YouTube videos
 🎮 I Play Minecraft & Roblox
-
-## Fun Facts
-
-I say every Day „only one thing“, an then i sit 5h on my PC. (From ChatGPT 💀)
 
 ## Im Cutting with
 
